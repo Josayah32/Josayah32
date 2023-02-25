@@ -9,4 +9,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... jfallesgon11501@gmail.com
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I love watching Anime as well as Playing Valorant
--->
