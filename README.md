@@ -3,8 +3,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on: Capstone Project
-- 🌱 I’m currently learning: Python
+- 🔭 I’m currently working on as a: QA at our Capstone Project
+- 🙆‍♂️ You can call me: Josh
 - 💬 Ask me about: Anything
 - 📫 How to reach me: jfallesgon11501@gmail.com
 - 😄 Pronouns: He/Him
